@@ -19,20 +19,20 @@
 
 
 
+Okay.........
+ I’m currently working on small coding projects and video content creation
 
-🔭 I’m currently working on small coding projects and video content creation
+ I’m currently learning ML, Web Development,  and improving my programming skills
 
-🌱 I’m currently learning ML, Web Development,  and improving my programming skills
+ I’m looking to collaborate on beginner-friendly projects, open-source experiments, and creative coding ideas
 
-👯 I’m looking to collaborate on beginner-friendly projects, open-source experiments, and creative coding ideas
+ I’m looking for help with advanced algorithms, system design, and optimizing my code like a pro
 
-🤔 I’m looking for help with advanced algorithms, system design, and optimizing my code like a pro
+ Ask me about SQL, Web Development, ML, AI… I’ll try
 
-💬 Ask me about SQL, Web Development, ML, AI… I’ll try
+ How to reach me: [rukaiyabintahossain@gmail.com]
 
-📫 How to reach me: [rukaiyabintahossain@gmail.com]
+ Pronouns: She/Her
 
-😄 Pronouns: She/Her
-
-⚡ Fun fact: I’m a self-proclaimed noob who loves making videos and accidentally creating bugs 
+ Fun fact: I’m a self-proclaimed noob who loves making videos and accidentally creating bugs 
 
